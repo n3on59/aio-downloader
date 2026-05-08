@@ -7,6 +7,175 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/18 15:02
+---
+
+## VahidOOnLine — post 238866
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_238866_1778239939.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دفاع امارات متحده عربی اعلام کرد سامانه‌های پدافند هوایی این کشور در روز جمعه، با موشک‌ها و پهپادهای شلیک‌شده از ایران مقابله کرده‌اند و در جریان این حملات سه نفر مجروح شدند.
+
+امارات متحده عربی اعلام کرد دو موشک بالستیک و سه پهپاد از سوی ایران به این کشور پرتاب شده است.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 90354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت دفاع امارات : امروز ایران 2 موشک بالستیک و 3 پهپاد به سمت ما شلیک کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90353
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90353_1778239939.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلترشکن v2rayپرسرعت ‼️
+                                                    
+
+✅ مناسب برای تمام اینترنت‌ها (همراه اول ایرانسل رایتل اینترنت خانگی و ..)
+
+
+✅ قابل استفاده برای تمام سیستم عامل ها 
+
+😎 ضمانت بازگشت وجه در صورت عدم اتصال
+
+✅ پشتیبانی ۲۴ ساعته تا آخرین مدت اعتبار اشتراک   
+  
+
+😎 اشتراک 10 گیگ 😎
+
+✅ فقط و فقط 1/500/000 ✅
+
+👩‍💻 آیدی ثبت سفارش✨پشتیبانی #خریدوفروش : 👇
+@SuportSevenStarsVpn
+
+لینک ورود به کانال اصلی:
+            
+ https://t.me/sevenstars_VPN
+</div>
+
+## DEJradio — post 4518
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4518_1778239940.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️ وزارت دفاع امارات متحده عربی اعلام کرد سامانه‌های پدافند هوایی این کشور امروز دو موشک بالستیک و سه پهپاد پرتاب‌شده از سوی جمهوری اسلامی را رهگیری کرده‌اند.بر اساس بیانیۀ این وزارتخانه، در جریان این حملات سه نفر به‌طور متوسط زخمی شده‌اند.
+
+#حمله_موشکی #امارات
+@DEJradio
+</div>
+
+## IranIntlTV — post 336124
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336124_1778239940.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی خضریان، عضو کمیسیون امنیت ملی مجلس، گفت جمهوری اسلامی باید همان رفتاری را که با پایگاه‌های نظامی اقلیم کردستان دارد با امارات نیز انجام دهد و اماراتی‌ها باید همواره منتظر باشند که هر پایگاهی در کشورشان هدف حمله جمهوری اسلامی قرار گیرد.
+گفت‌وگو با عطا محامد، کارشناس روابط بین‌الملل
+@iranintltv
+</div>
+
+## IranIntlTV — post 336123
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336123_1778239942.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دفاع امارات متحده عربی اعلام کرد سامانه‌های پدافند هوایی این کشور در روز جمعه، با موشک‌ها و پهپادهای شلیک‌شده از ایران مقابله کرده‌اند و در جریان این حملات سه نفر مجروح شدند.
+
+امارات متحده عربی اعلام کرد دو موشک بالستیک و سه پهپاد از سوی ایران به این کشور پرتاب شده است.
+iranintl.com/202605080659
+</div>
+
+## FarsiVOA — post 217185
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217185_1778239942.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان خواربار و کشاورزی ملل متحد، فائو، از افزایش قیمت مواد غذایی برای سومین ماه متوالی به خاطر انسداد تنگه هرمز خبر داد. بر اساس این گزارش، شاخص قیمت مواد غذایی در ماه آوریل ۱.۶ درصد نسبت به ماه پیش از آن افزایش داشته است.
+
+پیشتر فائو پیش‌بینی کرده بود که به خاطر انسداد تنگه هرمز، قیمت جهانی مواد غذایی برای کل سال جاری ۱۶ درصد افزایش یابد.
+
+حدود ۲۰ درصد از نفت و گاز مایع مصرفی جهان به همراه ۳۵ درصد از تجارت کودهای کشاورزی از تنگه هرمز می‌گذرد؛ اما از ۹ اسفند جمهوری اسلامی آن را مسدود کرده و باعث اخلال و افزایش قیمت انرژی و کودهای کشاورزی شده است.
+@FarsiVOA
+</div>
+
+## RadioFarda — post 156965
+
+<div align="center">
+  <a href="telegram/content/RadioFarda_156965_1778239943.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مارکو روبیو، وزیر امور خارجه آمریکا که به ایتالیا سفر کرده است، روز جمعه ۱۸ اردیبهشت در دومین روز کاری خود با جورجیا ملونی، نخست‌وزیر ایتالیا، دیدار کرد.
+
+🔸 روبیو روز گذشته در واتیکان با پاپ لئو، رهبر کاتولیک‌های جهان دیدار و گفت‌وگو کرد.
+
+🔸این دیدارها پس از هفته‌ها تنش بین رم و واتیکان با کاخ سفید به دلیل مواضعشان در قبال جنگ ایران بر انجام شد.
+
+🔸پاپ لئو، منتقد صریح جنگ آمریکا و اسرائیل با ایران بود و دونالد ترامپ در پاسخ، پاپِ متولد آمریکا را به حمایت از تلاش تهران برای دستیابی به سلاح‌های هسته‌ای متهم کرد و او را «ضعیف در برابر جرم و جنایت» خواند.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 19787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عراقچی :
+
+سازمان Cia اشتباه میکنه , موجودی موشک و ظرفیت پرتابگر ما در مقایسه با 28 فوریه 75 درصد نیست. رقم صحیح 120 درصد است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19786
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19786_1778239945.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل : این فرمانده تروریست جهاد اسلامی رو در جنوب لبنان از بین بردیم.
+
+@IranianMinds
+</div>
+
+## alonews — post 118647
+
+<div align="center">
+  <a href="telegram/content/alonews_118647_1778239945.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 صبح زود امروز، پهپادهای اوکراینی به گروزنی، جمهوری چچن روسیه، حمله کردند.
+
+
+🔴 ایستگاه راه‌آهن شهر هدف قرار گرفت و همچنین پهپادها منطقه خانکالا را هدف گرفتند، جایی که یکی از بزرگ‌ترین پایگاه‌های نظامی روسیه قرار دارد.
+
+
+🔴 یک پهپاد همچنین به ساختمانی از سازمان امنیت فدرال (FSB) در روستای زنامنسکویه در چچن حمله کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/18 14:56
 ---
 
