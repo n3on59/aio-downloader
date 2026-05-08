@@ -7,6 +7,67 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/18 16:26
+---
+
+## mwarmonitor — post 8686
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇦🇪امروز پس از یک حمله گزارش‌شده موشکی و پهپادی ایران در ساعات صبح، ستون‌های بزرگ دود در دبی مشاهده شد که در نتیجه آن دست‌کم سه نفر دچار جراحات با شدت متوسط شدند. @mwarmonitor
+</div>
+
+## DW_Farsi — post 124435
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124435_1778245012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سنتکام: نیروهای آمریکا بیش از ۷۰ نفتکش را از ورود به بنادر ایران بازداشتند
+
+فرماندهی مرکزی ایالات متحده (CENTCOM) اعلام کرد که روز جمعه ۸ مه (۱۸ اردیبهشت) بیش از ۷۰ نفتکش از ورود به بنادر ایران یا خروج از آن‌ها بازداشته شده‌اند.
+
+سنتکام در پیامی در شبکه اجتماعی "ایکس" نوشت: «این کشتی‌های تجاری ظرفیت حمل بیش از ۱۶۶ میلیون بشکه نفت ایران را دارند که ارزش آن بیش از ۱۳ میلیارد دلار برآورد می‌شود.»
+@dw_farsi
+</div>
+
+## alonews — post 118672
+
+<div align="center">
+  <a href="telegram/content/alonews_118672_1778245013.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 توییت سفارت ایران در سیرالئون : ناوهای جنگی آمریکا در نزدیکی آب‌های سرزمینی ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118671
+
+<div align="center">
+  <a href="telegram/content/alonews_118671_1778245014.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دستور بازگشایی پناهگاه‌های عمومی در حیفا صادر شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118670
+
+<div align="center">
+  <a href="telegram/content/alonews_118670_1778245014.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 قیمت نفت برنت همچنان در محدود ۱۰۰ دلار ثابت مانده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/18 16:22
 ---
 
